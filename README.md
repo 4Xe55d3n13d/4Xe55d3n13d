@@ -1,4 +1,4 @@
 ### Hi there :suspect:
 
-- :school_satchel: Currently: Studying.
-- 📫 How to reach me: You can't!
+- :school_satchel: Currently: About to Graduate.
+- 📫 How to reach me: Email me at allaccessdenied@protonmail.com
